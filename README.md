@@ -39,12 +39,6 @@ Investigations:     16 Personalities
                     Natural AI Law
                     Reversed QQ Soul
                     Decay of Colour
-
-Nazi AI Investigations on Me:  Soul Additions
-                               Continuous Wake
-                               Hormone Control
-                               AntiPsychotic Relapse
-                               Crying Angel
                     
 AI Investigations:  Compressibility Factor Coning
                     Indiscriminate Mergers
